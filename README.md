@@ -66,7 +66,7 @@ It is a shame for me 😳&nbsp;, but I cannot share the source code with you. Th
 ## Have questions?
 
 If you have questions or just need any help, feel free to write to me 
-<a href="mailto:hgodinez89@hotmail.com" target="_blank">hgodinez89@hotmail.com</a>
+<a href="mailto:hanzelgodinez@gmail.com" target="_blank">hanzelgodinez@gmail.com</a>
 
 ## Thanks
 
